@@ -1,1 +1,1 @@
-# practice
+kan wa folder aan wax ku practice gareeyo
